@@ -9,4 +9,4 @@ Prepárate para sumergirte en una ola de sonido con el nuevo sencillo de Tiny Ba
 
 #NuevoSencillo #PopElectrónico #Synthpop #MusicaIndie #NuevoLanzamiento
 ---
-![A Tiempo](https://tinybarsofsoap.com/wp-content/uploads/2024/07/moskar-singing-600x360.jpg)
+![A Tiempo](https://images.msha.ke/fdfe8539-f47b-4079-a5c3-3dfefd43a4c0?auto=format%2Ccompress&cs=tinysrgb&q=30&w=828)
