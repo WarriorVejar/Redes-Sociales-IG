@@ -9,4 +9,4 @@ Prepárate para sumergirte en una ola de sonido con el nuevo sencillo de Tiny Ba
 
 #NuevoSencillo #PopElectrónico #Synthpop #MusicaIndie #NuevoLanzamiento
 ---
-![A Tiempo](https://tinybarsofsoap.com/wp-content/uploads/2024/07/grabando-1.jpg)
+![A Tiempo](https://tinybarsofsoap.com/wp-content/uploads/2024/07/grabando-1-600x360.jpg)
