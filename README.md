@@ -10,4 +10,4 @@ No olvides seguir a [@tinybarsofsoap](https://www.instagram.com/tinybarsofsoap/)
 
 #NuevoSencillo #PopElectrónico #Synthpop #MusicaIndie #NuevoLanzamiento
 ---
-![A Tiempo](https://tinybarsofsoap.com/wp-content/uploads/2024/07/moskar-singing-600x360.jpg)
+![A Tiempo](https://i.scdn.co/image/ab67616d0000b273228c78fa391ffec5aa6a056e)
