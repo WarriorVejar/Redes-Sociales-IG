@@ -9,4 +9,4 @@ Prepárate para sumergirte en una ola de sonido con el nuevo sencillo de Tiny Ba
 
 #NuevoSencillo #PopElectrónico #Synthpop #MusicaIndie #NuevoLanzamiento
 ---
-![A Tiempo](https://www.instagram.com/p/CzhVoBmCPPL/?utm_source=ig_web_button_share_sheet&igsh=MzRlODBiNWFlZA==)
+![A Tiempo](https://www.instagram.com/p/CzhVoBmCPPL/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)
